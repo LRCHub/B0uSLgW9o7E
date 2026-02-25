@@ -1,4 +1,4 @@
-# Pretty Patterns – VOIDS
+# Pretty Patterns – VOIDS（feat. vally.exe）
 
 > **歌詞登録ステータス：同期歌詞あり**
 
